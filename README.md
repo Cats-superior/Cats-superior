@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @Cats-superior
+- 👀 I’m interested in, cats
+- 🌱 I’m currently learning, cats
+- 💞️ I’m looking to collaborate on, cats
+- 📫 How to reach me, cats
+- 😄 Pronouns: Its a bit risky to put cats so he/him
+- ⚡ Fun fact: Did you know I had a hole in the side of my right cheek when I Was 5 from a metel pipe? I got seven stiches and it did not realy hurt.
